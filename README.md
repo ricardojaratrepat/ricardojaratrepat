@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ricardojaratrepat
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning programing objects
+- 📫 How to reach me rajara1@miuandes.cl
